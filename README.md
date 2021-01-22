@@ -1,2 +1,3 @@
 # meaningless-amino-code
-this shit is pointless
+это дерьмо бессмысленно
+Взаимодействие с другими людьми
